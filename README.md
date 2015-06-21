@@ -1,0 +1,2 @@
+# The-Old-Mirror
+It was once believed that mirrors could cleanse the soul by trapping your negative energy inside the mirror. The older the mirror the more negative energy inside, break that mirror and all that negative energy is released. Once it is, you better run, you never know how that energy will manifest itself. Be careful, if it's really old it can be worse, your environment can be damaged or changed, all because of that energy, just remember, you were warned.
